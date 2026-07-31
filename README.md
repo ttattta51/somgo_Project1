@@ -1,1 +1,0 @@
-# somgo_Project1
